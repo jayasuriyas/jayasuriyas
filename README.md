@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jayasuriyas
 - 👀 I’m interested in Web Designing 
-- 🌱 I’m currently learning BIG DATA & A I.
+- 🌱 Learning BIG DATA & A I.
 - 📫 How to reach me;
               E-Mail  : 2255sjs@gmail.com
               Mob     : +91 8848193919
